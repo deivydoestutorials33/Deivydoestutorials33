@@ -1,4 +1,4 @@
-
+q
 <p align="center"> " deivy , i thought  you hated solo 0_0 ,, </p>
  <h3 align="center"> (this is still wip , sorry !) </h3>
 <div align="center">
@@ -11,7 +11,7 @@
 <a href="https://rentry.co/deivydoestuts33"><b>rentry 0 _ < </h3>
 <div align="center">
 
-
+---
 <details open>
 <summary>[ 🪨🏮 ] about m e !! </summary>
 <div>
