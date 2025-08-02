@@ -6,6 +6,9 @@
 
 ![](https://pbs.twimg.com/media/GvEytQkaIAAv1pY?format=jpg&name=large)
 
+<div align="center">
+
+<a href="https://rentry.co/deivydoestuts33"><b>rentry 0 _ <
 
 
 <details open>
