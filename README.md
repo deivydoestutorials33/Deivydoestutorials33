@@ -17,7 +17,7 @@
 <summary>[ 🪨🏮 ] about m e !! </summary>
 <div>
 <samp>
-<h2 align="center"> haii im rinn or deivy again , idc call me any pronouns but i rlly like he they moree 0_0 , i can be mostly spotted with @lamptrix cuz their like really close to me lol , no other reason than that.. thats why i also even played pt.. shoutout to lamp for the render.. i love it 030 ,, </h2>
+<h2 align="center"> haii im deiv, idc call me any pronouns but i rlly like he they moree 0_0 , i can be mostly spotted with @lamptrix cuz their like really close to me lol , no other reason than that.. thats why i also even played pt.. shoutout to lamp for the render.. i love it 030 ,, </h2>
 </samp>
 </div>
 
